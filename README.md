@@ -1,0 +1,1 @@
+Double inked list.
